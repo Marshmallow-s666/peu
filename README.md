@@ -1,3 +1,3 @@
 # peu
 
-corp.mail.ru
+sxdwcefrvgbt.domain.ru
