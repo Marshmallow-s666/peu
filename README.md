@@ -1,3 +1,1 @@
-# peu
-
 sxdwcefrvgbt.domain.ru
